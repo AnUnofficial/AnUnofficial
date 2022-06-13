@@ -1,5 +1,12 @@
 # AnUnofficial
 
-![yankeedoodle](https://user-images.githubusercontent.com/88250679/173257474-556555e3-9632-458a-97e0-834daa8031de.png)
+idk i code stuff of course
+email me gdepidemic7@gmail.com for... some reason
+idk you can ask me to code something
+or dont
+idc
 
-yankee doodle
+:)))))))))))))))))))))))))))))))))))))))))))))
+long smiley face snake
+:(((((((((((((((((((((((((((((((((((((((((((((
+long frowny face snake
